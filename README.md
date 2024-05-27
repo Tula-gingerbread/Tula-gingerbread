@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on None.
 - 📫 How to reach me? Discord: tula_gingerbread.
 - 😄 Pronouns: he/him.
-- ⚡ Fact: I use Arch btw)
+- ⚡ Fact: I use Artix btw)
 - ❓ [What?](https://tula-gingerbread.github.io/Tula-gingerbread/index.html)
 
 <!---
